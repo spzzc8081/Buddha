@@ -5,3 +5,4 @@ https://sianshou.org/
 https://www.youtube.com/@user-gx1lm1kd6t  
 
 南無阿彌陀佛  
+南無觀世音菩薩  
