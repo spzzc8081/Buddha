@@ -1,4 +1,4 @@
-# Buddha
+# 南無阿彌陀佛
 賢首禪苑  
 https://sianshou.org/  
 體佛法師  
